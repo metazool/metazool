@@ -1,5 +1,5 @@
 ### Jo Walsh
 
-Geospatial / Geoscience / DevOps / AI/ML
+Geospatial / Geoscience / DevOps / AI/ML / Dance Fitness
 
 
